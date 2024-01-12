@@ -1,5 +1,5 @@
 # Reflection 🌟
-## Summarize what you have gained from this: 
+## Summarize what I have gained from this: 
 This talk has provided valuable insights into the workplace at Clarity Techworks. By showcasing the diverse experiences and skills of its workforce, it has inspired me to explore my potential in this ever-evolving field of ICT. I was able to identify my strengths and weaknesses in terms of web development. Additionally, I learned how to manage my time efficiently to ensure I meet all the deadlines. ⏰💡
 
 ## Suggest any improvement: 🚀
